@@ -5,3 +5,6 @@ formato que los demas.
 
  - Hiram :)
  - Carmen >:VVV
+ - Rodrigo :)
+ - Andrés :D
+ - Diego :C :)
